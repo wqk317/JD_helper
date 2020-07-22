@@ -1,3 +1,7 @@
+# 网盘分流
+https://www.lanzoux.com/b0bqo6s6h
+密码:gw2q
+
 # 京东助手+淘宝试用助手+苏宁试用助手
 本仓库仅为[superaj](https://www.52pojie.cn/home.php?mod=space&uid=550011)大佬的作品分流, 非原创, 请移步52原贴链接: https://www.52pojie.cn/thread-1223831-1-1.html
 
@@ -11,4 +15,3 @@
 3. 苏宁易购试用申请
 4. 还有更多功能请自行挖掘
 
-# 网盘分流
